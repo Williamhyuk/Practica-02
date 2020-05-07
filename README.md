@@ -5,5 +5,5 @@
 ## Integrantes:
 
 * Milagros Celia Cruz Mamani
-*
-*
+* Carolina Bonie Chavez
+* Williams Nifla
